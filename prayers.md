@@ -1,4 +1,4 @@
-## daily prayers
+# daily prayers
 
 - Deliberate  
 I am a deliberate creator. Nothing should surprise me. I create. I allow the choices I have made. What life has created desire in me for. I am an allower of myself, my decisions.  
@@ -8,7 +8,7 @@ appreciation, the, appreciation, of love, the appreciation, the benefits the gaz
   
 Appreciation. Of appreciation. Of life. Of Earth. Of money. I appreciate life. I appreciate everything. Appreciation. Oh my love. Oh my heart. Oh my time. My love My heart My time. Without you it was wasted. My appreciation. Everything is blossoming. With appreciation.  
   
-# Morning (the dawning)  
+## Morning (the dawning)  
 Praise, appreciation, blessings  
 Blessed I be. I appreciate everything that works out for me.  
 
@@ -21,15 +21,18 @@ I appreciate my inner being, separating me from me, a great and holy love, you h
 - Appreciation of Contrast
 contrast. oh contrast. blessed you who makes my decisions easy. how the taste of good, is enhanced by bad. How the taste of sweet is kinder and more honeyish for the fires of the peppers in hell. 
 Contrast, the spices the taste. Thank you god, and lord for this serving of difference - of hated and so much love. The kind of differences that desire flows from, the new ideas are blossoming from, and the new land of our future utopia is born. The sweetest crannies, the highest peaks, the lowest land. All is not the same. And the spice must flow forever - the desires and decisions from contrasting taste, experience, and beauty. May contrast help me this day. 
-Contrast makes love bloom. 
-Afternoon (the stabilising)
-Calming nerves, focusing on priorities 
-You are awesome. Trust me. 
-- All is Well 
-I will break, but I will never bend.
-I often realize things are always working out for me. 
-That is because things are always working out for me. I’m just a thriver. I think I may be the most blessed person on the planet. 
-If you don’t agree, come take it from me. 
-Everything is always working out for me. 
-Things are always working out for me. All ways. 
-I never get it wrong. And I never get it done. I can never get it wrong because I never get it done. 
+Contrast makes love bloom.  
+## Afternoon (the stabilising)  
+
+Calming nerves, focusing on priorities  
+You are awesome. Trust me.  
+  
+### All is Well  
+I will break, but I will never bend.  
+I often realize things are always working out for me.   
+That is because things are always working out for me. I’m just a thriver. I think I may be the most blessed person on the planet.   
+If you don’t agree, come take it from me.  
+Everything is always working out for me.  
+Things are always working out for me. All ways.  
+I never get it wrong. And I never get it done. I can never get it wrong because I never get it done.  
+
