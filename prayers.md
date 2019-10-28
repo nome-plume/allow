@@ -28,11 +28,12 @@ Calming nerves, focusing on priorities
 You are awesome. Trust me.  
   
 ### All is Well  
-I will break, but I will never bend.  
+On this, I will break, but I will never bend.  
 I often realize things are always working out for me.   
 That is because things are always working out for me. I’m just a thriver. I think I may be the most blessed person on the planet.   
 If you don’t agree, come take it from me.  
 Everything is always working out for me.  
 Things are always working out for me. All ways.  
 I never get it wrong. And I never get it done. I can never get it wrong because I never get it done.  
+If you don't believe me, come prove me wrong. 
 
