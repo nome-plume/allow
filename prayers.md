@@ -1,21 +1,18 @@
 ## daily prayers
 
-- Deliberate
-I am a deliberate creator. Nothing should surprise me. I create. I allow the choices I have made. What life has created desire in me for. I am an allower of myself, my decisions. 
+- Deliberate  
+I am a deliberate creator. Nothing should surprise me. I create. I allow the choices I have made. What life has created desire in me for. I am an allower of myself, my decisions.  
+  
+- Appreciation   
+appreciation, the, appreciation, of love, the appreciation, the benefits the gaze the heart, the touch. the sweet. the appreciation of help. appreciation of world, going my way. appreciation, of touch. I appreciate this world. I appreciate appreciation, how it is the fastest way to connection. Spinning off.  
+  
+Appreciation. Of appreciation. Of life. Of Earth. Of money. I appreciate life. I appreciate everything. Appreciation. Oh my love. Oh my heart. Oh my time. My love My heart My time. Without you it was wasted. My appreciation. Everything is blossoming. With appreciation.  
+  
+# Morning (the dawning)  
+Praise, appreciation, blessings  
+Blessed I be. I appreciate everything that works out for me.  
 
-- Appreciation 
-appreciation, the, appreciation, of love, the appreciation, the benefits the gaze the heart, the touch. the sweet. the appreciation of help. appreciation of world, going my way. appreciation, of touch. I appreciate this world. I appreciate appreciation, how it is the fastest way to connection. Spinning off. 
-
-Appreciation. Of appreciation. Of life. Of Earth. Of money. I appreciate life. I appreciate everything. Appreciation. Oh my love. Oh my heart. Oh my time. My love My heart My time. Without you it was wasted. My appreciation. Everything is blossoming. With appreciation. 
-Morning (the dawning)
-Praise, appreciation, blessings
-Blessed I be. I appreciate everything that works out for me. 
-
-- 
-I can do it. I have the know how. I have the guidance system, the wonderful guidance, on point and deliberate. I have the knowledge. I am ready. To be ready. 
-- Give up
-
-
+- Give up  
 I give up. I give up. I give up. I give up my control of the uncontrollable. I give up my determination to make things better for others. I give up my attention to things that bother me. I give up my trying so hard. I give up my struggle. I give up my confounding confusion. I give up my excuse for negative emotion. I'm giving up my excuses. I'm giving up my statements of what is not working. I'm yielding to the the truth and laws. 
 From now on I make it my eternal quest to give up whatever I have to give up to spend more time in the vortex of what I want. 
 - Appreciation of God
