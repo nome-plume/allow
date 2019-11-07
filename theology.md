@@ -17,7 +17,7 @@ This is why old people are cranky, and deteriorate.
 ## Asking and Allowing  
 Feel the asking when you hurt yourself. Feel the pain and the response.  
 Feel the asking when you work out. The muscles asking for completion.  
-Pain demands a response. There are two parts - the asking, and the allowing of the response.  
+Pain demands a response. There are two parts to creation - the asking, and the allowing of the response.  
 
 Two parts to it - the asking. The asking can be painful, can be uncomfortable, but it is important.  
 The second part is allowing. Turn to the asking and be a conduit for the response. Focus on what is needed.  
